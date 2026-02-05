@@ -1,2 +1,1 @@
-# Built-Your-Own-Career-X
-Sai Murali | Software Engineer (9+ Years) 
+# Sai Murali Pavan Rayavarapu's Built Your Own Career X
